@@ -1,1 +1,1 @@
-# N-tosu or Nōto
+# N-otsu or Nōto
